@@ -1,0 +1,2 @@
+# hugehaoshuai
+日常
